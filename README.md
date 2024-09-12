@@ -1,4 +1,11 @@
-## Hi there 👋
+## oii 🐱🩷💮
+meu nome é *paola*
+
+estudo no 1 ano no JPA
+
+![](https://media.giphy.com/media/3ohs7J2aQBUeZmMtfG/giphy.gif?cid=790b7611emx58382h323j4v0dgprt17hvafms84b7jew45ro&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+
+
 
 <!--
 **paolaaaaaaaaaaaa/paolaaaaaaaaaaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
