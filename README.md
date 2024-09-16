@@ -1,9 +1,12 @@
 ## oii 🐱🩷💮
 meu nome é *paola*
+paola.monteiro.silva@escola.pr.gov.br 
 
-estudo no 1 ano no JPA
+estudo no 1 ano integral no JPA 
 
 ![](https://media.giphy.com/media/3ohs7J2aQBUeZmMtfG/giphy.gif?cid=790b7611emx58382h323j4v0dgprt17hvafms84b7jew45ro&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+
+
 
 
 
