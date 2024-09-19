@@ -1,8 +1,9 @@
-## oii 🐱🩷💮
-meu nome é *paola*
-paola.monteiro.silva@escola.pr.gov.br 
+## oii 🩷💮
+meu nome é *Paola*
 
-estudo no 1 ano integral no JPA 🤙
+email:paola.monteiro.silva@escola.pr.gov.br 
+
+estudo no 1 ano integral JPA
 
 ![](https://media.giphy.com/media/5Jmxi8Le6ePGo/giphy.gif?cid=ecf05e47oxliq43fofmmjkdjjuxaqslp1uwmnfukoyf5cy35&ep=v1_gifs_related&rid=giphy.gif&ct=g)
 
