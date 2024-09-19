@@ -4,6 +4,7 @@ meu nome é *Paola*
 email:paola.monteiro.silva@escola.pr.gov.br 
 
 estudo no 1 ano integral JPA
+✧･ﾟ: *✧･ﾟ:* *:･ﾟ✧*:･ﾟ✧
 
 ![](https://media.giphy.com/media/5Jmxi8Le6ePGo/giphy.gif?cid=ecf05e47oxliq43fofmmjkdjjuxaqslp1uwmnfukoyf5cy35&ep=v1_gifs_related&rid=giphy.gif&ct=g)
 
